@@ -1,0 +1,2 @@
+# premium-gourd-lamp-001-gourd-lamp-drilling-pattern-tr
+Tired of losing that perfect drilling pattern you spent hours designing? The Gourd Lamp Drilling Pattern Tracker turns your scattered notes into an organized, visual library you can replicate in seconds.  This Notion template solves the chaos of tracking gourd lamp drilling patterns by giving you a structured database with fields for pattern name,
